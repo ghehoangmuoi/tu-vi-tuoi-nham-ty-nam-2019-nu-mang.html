@@ -3,7 +3,18 @@
         <p><strong>Hợp với tuổi</strong> Kỷ, Thân, Thìn-Khắc với tuổi Mậu, Dậu, Mẹo</p>
         <p><strong>Hợp với màu</strong> vàng, trắng - Khắc với màu đen, đỏ</p>
             <h3>Xem tử vi giáp tý 2019 nữ mạng chi tiết</h3>
-            
-<iframe src="//www.slideshare.net/slideshow/embed_code/key/tWxZ1qtiI6XEWz" width="595" height="485" frameborder="0" marginwidth="0" marginheight="0" scrolling="no" style="border:1px solid #CCC; border-width:1px; margin-bottom:5px; max-width: 100%;" allowfullscreen> </iframe>
+            <p>Công Việc</p>
+<p>Quý cô thường làm lợi cho gia đình anh chị em, lấy phúc lành đối đãi với cuộc sống, hành thiện tác phước nên ai cũng quý mến kính nể, đường công danh được lưu truyền, việc làm ổn định, tiền bạc được tăng theo sự ước muốn của mình. Năm nay để phòng bệnh tim mạch và cao huyết áp, một chút sơ hở có thể làm tan nát cả một đời.</p>
+<p>Tài Chính</p>
+<p> Hoá lộc và lộc tồn cùng chư tài tính tam hợp, năm nay may mắn thu nhập dồi dào nhưng không giữ được tiền, phải làm nhiều việc phước đức thì tiền tài mới ở lại. Tháng 6 và 11 có tiền nhiều cùng quà biếu tặng. Tháng 8 đi xa  hao tiền và bị tranh chấp.</p>
+<p>Tình Duyên</p>
+<p>Mối liên hệ vợ chồng đối với quý cô chỉ là một hình thức trả nợ tình hay nợ đời, là bổn phận chứ không phải là một sự luyến ái chân tình, Năm nay có tin vui cưới hỏi của con cháu mà gia đình vui vẻ.</p>
+<p>Sức Khỏe</p>
+<p>Trên đây là sơ lược lá số tử vi Bính Ngọ nữ mạng được trích từ cuốn lịch tử vi 2019 do chùa Khánh An biên soạn. Nếu muốn biết thêm các diễn biến về cuộc sống trong năm 2019 của mình thì mời bạn xem phần tiếp theo của bài viết này</p>
+h3>Diễn biến từng tháng trong năm Nhâm Tý nữ năm 2019</h3>
+
+<img src="https://i.imgur.com/jI8HdmW.jpg" alt="tu vi nham ty 2019 nu">
+
+<p>Tham khảo: <a href="https://doctailieu.com/tu-vi/sao-han-nham-ty-2019">Sao hạn Nhâm Tý 2019</a></p>
 
 <p>Nguồn: <a href="https://doctailieu.com/tu-vi/nham-ty-2019-nu-mang" title="tử vi giáp tý 2019 nữ mạng">https://doctailieu.com/tu-vi/nham-ty-2019-nu-mang</a></p>
