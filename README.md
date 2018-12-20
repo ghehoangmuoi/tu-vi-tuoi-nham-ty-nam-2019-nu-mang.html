@@ -23,5 +23,3 @@
 <p dir="ltr" style="text-align:justify"><span style="font-size:14px">Trên đây là tử vi tuổi Nhâm Tý nữ mạng năm 2019 được chúng tôi tổng hợp từ những nguồn thông tin chính xác và đáng tin cậy đó là trang web phongthuyso.vn - một website phong thủy, uy tín hàng đầu hiện nay. Nếu có những thắc mắc, hay cần tư vấn từ chuyên gia đây cũng sẽ là một nơi có thể giải đáp các thắc mắc cho quý cô.</span></p>
 
 <p dir="ltr" style="text-align:justify"><span style="font-size:14px">Nguồn: <strong><a href="https://doctailieu.com/tu-vi/nham-ty-2019-nam-mang">https://doctailieu.com/tu-vi/nham-ty-2019-nam-mang</a></strong></span></p>
-
-<p style="text-align:justify">&nbsp;</p>
