@@ -4,11 +4,7 @@
 
 <p dir="ltr" style="text-align:justify"><strong><span style="font-size:14px">Xem thêm:</span></strong></p>
 
-<p dir="ltr" style="text-align:justify"><strong><span style="font-size:14px"><a href="https://flipboard.com/@xemtuvinam2019">Xem tử vi năm 2019</a></span></strong></p>
 
-<p dir="ltr" style="text-align:justify"><strong><span style="font-size:14px"><a href="https://www.linkedin.com/pulse/tu-vi-2019-nam-mang-minh-nguyen/">Tử vi 2019 nam mạng</a></span></strong></p>
-
-<p dir="ltr" style="text-align:justify"><strong><span style="font-size:14px"><a href="https://phongthuyso.vn/tu-vi-tuoi-nham-ty-nam-2019-nam-mang.html">Tử vi tuổi Nhâm Tý năm 2019 nam mạng</a></span></strong></p>
 
 <p dir="ltr" style="text-align:justify">&nbsp;</p>
 
@@ -26,6 +22,6 @@
 
 <p dir="ltr" style="text-align:justify"><span style="font-size:14px">Trên đây là tử vi tuổi Nhâm Tý nữ mạng năm 2019 được chúng tôi tổng hợp từ những nguồn thông tin chính xác và đáng tin cậy đó là trang web phongthuyso.vn - một website phong thủy, uy tín hàng đầu hiện nay. Nếu có những thắc mắc, hay cần tư vấn từ chuyên gia đây cũng sẽ là một nơi có thể giải đáp các thắc mắc cho quý cô.</span></p>
 
-<p dir="ltr" style="text-align:justify"><span style="font-size:14px">Nguồn: <strong><a href="https://phongthuyso.vn/tu-vi-tuoi-nham-ty-nam-2019-nu-mang.html">https://phongthuyso.vn/tu-vi-tuoi-nham-ty-nam-2019-nu-mang.html</a></strong></span></p>
+<p dir="ltr" style="text-align:justify"><span style="font-size:14px">Nguồn: <strong><a href="https://doctailieu.com/tu-vi/nham-ty-2019-nam-mang">https://doctailieu.com/tu-vi/nham-ty-2019-nam-mang</a></strong></span></p>
 
 <p style="text-align:justify">&nbsp;</p>
