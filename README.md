@@ -11,9 +11,10 @@
 <p>Mối liên hệ vợ chồng đối với quý cô chỉ là một hình thức trả nợ tình hay nợ đời, là bổn phận chứ không phải là một sự luyến ái chân tình, Năm nay có tin vui cưới hỏi của con cháu mà gia đình vui vẻ.</p>
 <p>Sức Khỏe</p>
 <p>Trên đây là sơ lược lá số tử vi Bính Ngọ nữ mạng được trích từ cuốn lịch tử vi 2019 do chùa Khánh An biên soạn. Nếu muốn biết thêm các diễn biến về cuộc sống trong năm 2019 của mình thì mời bạn xem phần tiếp theo của bài viết này</p>
-h3>Diễn biến từng tháng trong năm Nhâm Tý nữ năm 2019</h3>
 
-<img src="https://i.imgur.com/jI8HdmW.jpg" alt="tu vi nham ty 2019 nu">
+<h3>Diễn biến từng tháng trong năm Nhâm Tý nữ năm 2019</h3>
+
+<img src="https://i.imgur.com/jI8HdmW.jpg" alt="tu vi nham ty 2019 nu" >
 
 <p>Tham khảo: <a href="https://doctailieu.com/tu-vi/sao-han-nham-ty-2019">Sao hạn Nhâm Tý 2019</a></p>
 
