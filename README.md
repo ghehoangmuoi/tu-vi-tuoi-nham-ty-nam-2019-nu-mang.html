@@ -3,6 +3,7 @@
         <p><strong>Hợp với tuổi</strong> Kỷ, Thân, Thìn-Khắc với tuổi Mậu, Dậu, Mẹo</p>
         <p><strong>Hợp với màu</strong> vàng, trắng - Khắc với màu đen, đỏ</p>
             <h3>Xem tử vi giáp tý 2019 nữ mạng chi tiết</h3>
-<iframe src="//www.slideshare.net/slideshow/embed_code/key/tWxZ1qtiI6XEWz" width="595" height="485" frameborder="0" marginwidth="0" marginheight="0" scrolling="no" style="border:1px solid #CCC; border-width:1px; margin-bottom:5px; max-width: 100%;" allowfullscreen> </iframe> <div style="margin-bottom:5px"> <strong> <a href="//www.slideshare.net/jeanbaptiste.dumont/presentation-barometreservicesalapersonne2017" title="Presentation barometre-services-a-la-personne-2017" target="_blank">Presentation barometre-services-a-la-personne-2017</a> </strong> from <strong><a href="https://www.slideshare.net/jeanbaptiste.dumont" target="_blank">Jean-Baptiste Dumont</a></strong> </div>
+            
+<iframe src="//www.slideshare.net/slideshow/embed_code/key/tWxZ1qtiI6XEWz" width="595" height="485" frameborder="0" marginwidth="0" marginheight="0" scrolling="no" style="border:1px solid #CCC; border-width:1px; margin-bottom:5px; max-width: 100%;" allowfullscreen> </iframe>
 
 <p>Nguồn: <a href="https://doctailieu.com/tu-vi/nham-ty-2019-nu-mang" title="tử vi giáp tý 2019 nữ mạng">https://doctailieu.com/tu-vi/nham-ty-2019-nu-mang</a></p>
